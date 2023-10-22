@@ -1,3 +1,3 @@
-# rizwan gunawan sidik
+# RIZWAN GUNAWAN SIDIK
 # 2141032
-# teknik informatika
+# TEKNIK INFORMATIKA
